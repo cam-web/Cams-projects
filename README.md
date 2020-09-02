@@ -1,2 +1,2 @@
 # Cams-projects
-Hi, I am super new to this, but really excited!
+Just going to type some stuff here 
